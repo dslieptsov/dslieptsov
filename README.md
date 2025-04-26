@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @dslieptsov
+👋 Hi, I’m @dslieptsov
